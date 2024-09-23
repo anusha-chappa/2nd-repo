@@ -1,3 +1,3 @@
 # 2nd-repo
-Anusha yoga centre
+Anusha yoga center
 Yoga surya asanas
